@@ -2,7 +2,7 @@ So I am now almost 41 years of age, and I  am quite embarrassed to say I have wo
 
 It has just dawned on me right now that **white privilege is a thing** and I only understand now what is meant by "gaslighting". 
 
-I would recommend to anyone to check out the panel discussion https://news.sky.com/story/racism-wont-change-until-black-people-no-longer-seen-as-police-property-former-met-diversity-chief-12008645 and tell me if this changes or re-enforces **your perspective** at all? 
+I would recommend to anyone to check out the panel discussion [here](https://news.sky.com/story/racism-wont-change-until-black-people-no-longer-seen-as-police-property-former-met-diversity-chief-12008645) and tell me if this changes or re-enforces **your perspective** at all? 
 
 As I was in the middle of writing this, I decided to make one small change by ringing the doorbell of the family that lives down the road to my house and start a conversation.
 
